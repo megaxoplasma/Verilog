@@ -1,1 +1,1 @@
-# TechInterview_Ying_KC705-
+Ying_KC705-
